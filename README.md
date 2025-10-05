@@ -28,7 +28,6 @@ Many of these methods, originally developed to study physical systems, are now w
 ✍️ Medium: https://medium.com/@ozsp12  
 𝕏  X (Twitter): https://x.com/ozsp12  
 📱 TikTok: https://www.tiktok.com/@ozsp12  
-📸 Instagram: https://www.instagram.com/ozsp12/  
 ▶️ YouTube: https://www.youtube.com/@ozlsp12  
 
  
